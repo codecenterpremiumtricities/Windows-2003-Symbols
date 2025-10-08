@@ -1,1 +1,1 @@
-# Windows-2003-Smymbols-DVD
+# Windows-2003-Symbols-DVD
